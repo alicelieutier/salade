@@ -2,7 +2,7 @@
 
 FR
 
-Ma contribution au webring de la salade. Contributions envouragées.
+Ma contribution au webring de la salade. Contributions encouragées.
 
 EN
 
